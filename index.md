@@ -1,1 +1,0 @@
-# Rosa Kösters
